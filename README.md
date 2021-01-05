@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 
-- ⚡Passion is to be a Pro Footballer
+-⚡  Passion to be a Pro Footballer
 - 🌱 I’m currently learning eng
 - 👯 I’m looking to collaborate with LM10
 - 🤔 I’m curious to watch sports and  games ..
